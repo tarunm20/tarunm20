@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://www.tarunmurugan.com/](https://www.tarunmurugan.com/)
 
-- 📫 How to reach me **tarun.murugan24@gmail.com**
+- 📫 How to reach me **tarun.murugan24@gmail.com** or **tmurugan@ucsd.edu**
 
 - 📄 Know about my experiences [https://www.tarunmurugan.com/resume.pdf](https://www.tarunmurugan.com/resume.pdf)
 
